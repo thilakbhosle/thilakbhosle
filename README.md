@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi! I'm Thilak Bhosle
 Currently Studing at Presidency University
 
 
