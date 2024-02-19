@@ -1,5 +1,6 @@
 # Hi! I'm Thilak Bhosle
 Currently Studing at Presidency University
+in B.Tech CSE
 
 
 ## 🌐 Socials:
